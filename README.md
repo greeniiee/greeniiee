@@ -8,7 +8,11 @@
 <img width="60%" height="300" alt="1000178844-gradient-map-comic-sunset" src="https://github.com/user-attachments/assets/268f7aa2-2c07-46bc-988d-732bafe44f17" />
 
 
-<p align="center"> ${\textsf{\color{#5641a5} ! ꜛ 𝔾𝗿𝗲𝗲𝗻𝗶𝗲 ᵒʳ 𝕄𝗮𝘁𝘁𝘆 ⟢ }}$
+<p align="center"> ${\textsf{\color{#5641a5} ! ꜛ 𝔾𝗿𝗲𝗲𝗻𝗶𝗲 ᵒʳ 𝕄𝗮𝘁𝘁𝘆 ⟢ }}$ <img width="4%" height="35" alt="7ec08256" src="https://github.com/user-attachments/assets/d5d72431-6bbc-4fc9-8f48-fa574b404929" />
+
+
+
+
 <p align="center"> ${\textsf{\color{#b07ad9} ⠀〘  𝐇𝕖 ㅤ ノ ㅤ 𝐓𝕙𝕖𝕪  〙 ㅤㅤ 𓎟𓎟  ㅤ 05.10 || M̲𝓎 L̲𝓲𝓶𝓮 }}$<a href="https://github.com/DarkSci-Facility">❤︎~</a> 
 <p align="center"> ${\textsf{\color{#ffbf9a} ✦ }}$ <a href="https://dued1u.straw.page/">strawpage</a> ${\textsf{\color{#fff3df} 𓊈𓏵𓊉 }}$ <a href="https://captainworm.atabook.org/">atabook</a> ${\textsf{\color{#b07ad9} 𓊈𓏵𓊉 }}$
 <div align="center">
