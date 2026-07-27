@@ -14,7 +14,7 @@
 
 ${\textsf{\color{#ea3e83}  ໒꒰ྀི ´ ꒳ ` ྀི꒱১ }}$
 
-[<img width="128" height="128%" alt="image" src="https://github.com/user-attachments/assets/32b898ea-e303-49a7-bcc0-d95be9cb15c7" />](captainworm.atabook.org) ㅤㅤㅤㅤ [<img width="128" height="128%" alt="image" src="https://github.com/user-attachments/assets/ceac8a12-5fca-4c97-8f0c-f00cdf909c38" />](https://purpss.straw.page/)
+[<img width="128" height="128%" alt="image" src="https://github.com/user-attachments/assets/32b898ea-e303-49a7-bcc0-d95be9cb15c7" />](https://captainworm.atabook.org/) ㅤㅤㅤㅤ [<img width="128" height="128%" alt="image" src="https://github.com/user-attachments/assets/ceac8a12-5fca-4c97-8f0c-f00cdf909c38" />](https://purpss.straw.page/)
 
 <img width="1500" height="211%" alt="image" src="https://github.com/user-attachments/assets/f3e68fd9-cd6f-47e4-bdbe-8e939a5bec8e" />
 
